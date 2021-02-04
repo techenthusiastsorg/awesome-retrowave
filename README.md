@@ -6,5 +6,5 @@
 
 ### Tracks
 
-[Dusk from GRID FM by RetroNight87](https://neonretrorecords.bandcamp.com/track/dusk)
-[Highway from GRID FM by RetroNight87](https://neonretrorecords.bandcamp.com/track/highway-2)
+ - [Dusk from GRID FM by RetroNight87](https://neonretrorecords.bandcamp.com/track/dusk)
+ - [Highway from GRID FM by RetroNight87](https://neonretrorecords.bandcamp.com/track/highway-2)
