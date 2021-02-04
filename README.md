@@ -23,3 +23,8 @@ We are looking for a player that will subscribe to a Slack channel and post auto
 ### Scandroid (Los Angeles, California)
 
 - [Awakening from The Darkness and The Light by Scandroid](https://scandroid.bandcamp.com/track/awakening)
+
+### Sofa King Vinyl (Los Angeles, California)
+
+- [Wild Life from Diplomatic Immunity by Client Liaison](https://sofakingvinyl.com/track/wild-life)
+
