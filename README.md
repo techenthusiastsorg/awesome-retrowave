@@ -15,3 +15,7 @@ We are looking for a player that will subscribe to a Slack channel and post auto
 
 ### 2D Cat (Washington D.C.)
 - [Sunset from Weeks Where Decades Happen by 2DCAT](https://2dcat.bandcamp.com/track/sunset)
+
+### Freezepop (Boston, Massachusetts)
+
+- [Glitterstorm (7" Mix) from Santasizer EP by Freezepop](https://freezepop.bandcamp.com/track/glitterstorm-7-mix)
