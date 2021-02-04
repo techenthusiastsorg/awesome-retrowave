@@ -19,3 +19,7 @@ We are looking for a player that will subscribe to a Slack channel and post auto
 ### Freezepop (Boston, Massachusetts)
 
 - [Glitterstorm (7" Mix) from Santasizer EP by Freezepop](https://freezepop.bandcamp.com/track/glitterstorm-7-mix)
+
+### Scandroid (Los Angeles, California)
+
+- [Awakening from The Darkness and The Light by Scandroid](https://scandroid.bandcamp.com/track/awakening)
