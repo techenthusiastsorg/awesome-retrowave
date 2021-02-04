@@ -8,23 +8,26 @@ We are looking for a player that will subscribe to a Slack channel and post auto
 
 > People who show you new music are important.
 
-### Neon Retro Records (Moscow, Russia)
+## Neon Retro Records (Moscow, Russia)
 
 - [Dusk from GRID FM by RetroNight87](https://neonretrorecords.bandcamp.com/track/dusk)
 - [Highway from GRID FM by RetroNight87](https://neonretrorecords.bandcamp.com/track/highway-2)
 
-### 2D Cat (Washington D.C.)
+## 2D Cat (Washington D.C.)
 - [Sunset from Weeks Where Decades Happen by 2DCAT](https://2dcat.bandcamp.com/track/sunset)
 
-### Freezepop (Boston, Massachusetts)
+## Freezepop (Boston, Massachusetts)
 
 - [Glitterstorm (7" Mix) from Santasizer EP by Freezepop](https://freezepop.bandcamp.com/track/glitterstorm-7-mix)
 
-### Scandroid (Los Angeles, California)
+## Scandroid (Los Angeles, California)
 
 - [Awakening from The Darkness and The Light by Scandroid](https://scandroid.bandcamp.com/track/awakening)
 
-### Sofa King Vinyl (Los Angeles, California)
+## Sofa King Vinyl (Los Angeles, California)
 
 - [Wild Life from Diplomatic Immunity by Client Liaison](https://sofakingvinyl.com/track/wild-life)
 
+##  Bar 25 Music (Berlin, Germany)
+
+- [Martin Waslewski - Dimensionen (Original Mix) from Bar 25 Music: 125 [Bar25​-​125] by Various Artists](https://bar25music.bandcamp.com/track/martin-waslewski-dimensionen-original-mix)
