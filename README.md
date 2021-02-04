@@ -2,7 +2,7 @@
 
 ## Motivation
 
-> People Who Show You New Music
+> People who show you new music are important.
 
 ### Tracks
 
