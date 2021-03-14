@@ -8,6 +8,10 @@ We are looking for a player that will subscribe to a Slack channel and post auto
 
 > People who show you new music are important.
 
+## Luke Million (Australia)
+
+- [Stranger Things Theme (Extended)](https://www.facebook.com/lukemillionmusic/videos/1179412918766669/)
+
 ## Xtract (San Jose, California)
 
 - [Audiotool Day 2016](https://xtractmusic.bandcamp.com/track/audiotool-day-2016)
