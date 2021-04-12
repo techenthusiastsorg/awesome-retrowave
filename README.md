@@ -8,6 +8,10 @@ We are looking for a player that will subscribe to a Slack channel and post auto
 
 > People who show you new music are important.
 
+## Lazerdiscs Records (Marseille, France)
+
+- [Extra Life by Castroe](https://lazerdiscs.bandcamp.com/track/extra-life)
+
 ## Luke Million (Australia)
 
 - [Stranger Things Theme (Extended)](https://www.facebook.com/lukemillionmusic/videos/1179412918766669/)
